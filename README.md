@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Felga7453 or just Felga__ 👋
-- 👀 interested in Music and Games
+- 👀 interested in Music and Games 👀
 - 🌱 I’m currently learning Python, life 🌱
 - 📫 Discord - Felga#4481 📫
